@@ -1,4 +1,4 @@
-### Hi there 👋
+### When I say I know you,I mean I knew you yesterday. I do not know you actually now. 👋
 
 <!--
 **kingswwongt/kingswwongt** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
